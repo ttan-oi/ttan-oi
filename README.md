@@ -1,3 +1,3 @@
- Hi there 👋
-- 🔭 I’m currently working at home
-- 🌱 I’m currently learning english, korean, chinese, culture, history ...
+ Xin chào 👋
+- 🔭 Lưu trữ vài thứ vui vẻ 
+- 🌱 I’m currently learning love, english, korean, chinese, culture, history ...
